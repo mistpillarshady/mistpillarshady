@@ -20,7 +20,7 @@ For more info or any specifics, consult my pronouns.cc page.
 
 <img src="tumblr_94e956a22526af4aaf71731b1294d574_24c6f845_100.png"> <img src="tumblr_7b13584bd1c8eefaa15185455ea9b061_d08b0727_100.png"> <img src="tumblr_2b84913e8e4865adf7b53fa09745263b_0c2c7899_100.png"> <img src="tumblr_3ca881b1792a960c6474404a945430bf_3fa4425e_100.webp"> <img src="tumblr_50ca884303937e4a885b4d67c7935ffb_aadf010e_100.webp">
 
-<img src="tumblr_178a4ac185f2588f94cc10a8fc5d5218_8afb2a2e_250.webp">
+<img src="tumblr_178a4ac185f2588f94cc10a8fc5d5218_8afb2a2e_250.webp" width="300" height="50">
 
 ## DNI Criteria
 
