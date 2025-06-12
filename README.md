@@ -29,15 +29,16 @@ For more info or any specifics, consult my pronouns.cc page.
 **My DNI is pretty small and based on my personal comfort since my stances can be inconsistent or neutral;**
 
 - **Basic DNI, so basically bigots fuck off. I think that's obvious tho.**
-- Proship (specifically Darkship); I take no sides in shipcourse, but I'm not comfortable with darkshippers.
-    - Comship is on thin ice due to the nuance in it.
-- Antiship; I'm recovering from this stressful mindset and would rather NOT deal with y'all.
+- **Proship (specifically Darkship/Illegal ships); I take no sides in shipcourse, but I'm not comfortable with darkshippers *whatsoever.***
+    - One example; if you ship **canonical** siblings/family, then definitely dni, zero tolerance (looking at that one Gensane shipper I saw, shame on you)
+    - Obviously anything adult involving children and animals (not furries) too, but incest strikes a major cord with me
+- Antiship; I'm recovering from that stressful mindset and would rather NOT deal with y'all.
 - Syscourse in general.
 - **Any Cluster B abuse believers.**
-- **Against self-dx, but that's mostly because I'm self-dx.**
+- **Anti-SelfDX (I'm SelfDX).**
 
-Again, this list is for my own comfort. Otherwise I'm more of a "block if you make me genuinely uncomfortable" type of guy.
+Again, this list is for my own comfort. If you fit my DNI or make me uncomfortable enough, you're probably already hidden or I'm keeping my eye on you...
 
-If you fit the proship or antiship categories, but still want to interact, IWC and avoid topics related to shipping or shipcourse around me. That's my suggestion.
+Fyi: My heavy emphasis on incest in my dni is because I introject a lot of siblings. We're highly disturbed by those types of ships.
 
 <img src="tumblr_e4e92589cbdf73db6f1946845b526398_49bc88f1_1280.jpg" width="275" height="50"> <img src="tumblr_b5cd265ac61d250c0a99eb3ffab3db25_43284df7_1280.jpg" width="275" height="50"> <img src="tumblr_23f49123d34b88737c7878aa6186aba8_91247932_500.jpg" alt="This user loves Gaara; fyi this is platonic and maybe a sort of self-love" width="275" height="50"> <img src="tumblr_763ff8557e7457d40c4e9da9c8d65c2d_4f198690_1280.png" width="275" height="50">
