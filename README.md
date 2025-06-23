@@ -33,7 +33,6 @@ For more info or any specifics, consult my pronouns.cc page.
     - One example; if you ship **canonical** siblings/family, then definitely dni, zero tolerance (looking at that one Gensane shipper I saw, shame on you)
     - Obviously anything adult involving children and animals (not furries) too, but incest strikes a major cord with me
 - Antiship; I'm recovering from that stressful mindset and would rather NOT deal with y'all.
-- Syscourse in general.
 - **Any Cluster B abuse believers.**
 - **Anti-SelfDX (I'm SelfDX).**
 
