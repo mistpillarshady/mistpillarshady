@@ -18,7 +18,7 @@ Alterhuman/Otherkin + Full of a variety genders.
 
 For more info or any specifics, consult my pronouns.cc page.
 
-**[New]** My Coroika OC's page; [Arbiter](https://github.com/EnberNeutral/Arbiter_CoroikaOC)
+My Coroika OC's page; [Arbiter](https://github.com/EnberNeutral/Arbiter_CoroikaOC)
 
 <img src="tumblr_94e956a22526af4aaf71731b1294d574_24c6f845_100.png"> <img src="tumblr_7b13584bd1c8eefaa15185455ea9b061_d08b0727_100.png"> <img src="tumblr_2b84913e8e4865adf7b53fa09745263b_0c2c7899_100.png"> <img src="tumblr_3ca881b1792a960c6474404a945430bf_3fa4425e_100.webp"> <img src="tumblr_50ca884303937e4a885b4d67c7935ffb_aadf010e_100.webp"> <img src="tumblr_68035b2ac134fb8e321c1030bef41e26_ead73d13_100.png">
 
@@ -30,14 +30,12 @@ For more info or any specifics, consult my pronouns.cc page.
 
 - **Basic DNI, so basically bigots fuck off. I think that's obvious tho.**
 - **Proship (specifically Darkship/Illegal ships); I take no sides in shipcourse, but I'm not comfortable with darkshippers *whatsoever.***
-    - One example; if you ship **canonical** siblings/family, then definitely dni, zero tolerance (looking at that one Gensane shipper I saw, shame on you)
-    - Obviously anything adult involving children and animals (not furries) too, but incest strikes a major cord with me
 - Antiship; I'm recovering from that stressful mindset and would rather NOT deal with y'all.
 - **Any Cluster B abuse believers.**
 - **Anti-SelfDX (I'm SelfDX).**
 
 Again, this list is for my own comfort. If you fit my DNI or make me uncomfortable enough, you're probably already hidden or I'm keeping my eye on you...
 
-Fyi: My heavy emphasis on incest in my dni is because I introject a lot of siblings. We're highly disturbed by those types of ships.
+Doubles of kins/fictives aren't on my DNI, but I do feel a bit uncomfortable around them if we aren't friends. IWC I guess???
 
 <img src="tumblr_e4e92589cbdf73db6f1946845b526398_49bc88f1_1280.jpg" width="275" height="50"> <img src="tumblr_b5cd265ac61d250c0a99eb3ffab3db25_43284df7_1280.jpg" width="275" height="50"> <img src="tumblr_23f49123d34b88737c7878aa6186aba8_91247932_500.jpg" alt="This user loves Gaara; fyi this is platonic and maybe a sort of self-love" width="275" height="50"> <img src="tumblr_763ff8557e7457d40c4e9da9c8d65c2d_4f198690_1280.png" width="275" height="50">
