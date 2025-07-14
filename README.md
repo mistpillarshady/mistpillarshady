@@ -20,7 +20,7 @@ For more info or any specifics, consult my pronouns.cc page.
 
 My Coroika OC's page; [Arbiter](https://github.com/EnberNeutral/Arbiter_CoroikaOC)
 
-<img src="trust ceremony stamp.png"> <img src="jsrf stamp.png">
+<img src="trust ceremony stamp.png"> <img src="jsrf stamp.png"> <img src="neverland soundgirls stamp.png"> <img src="stomach book stamp.png"> <img src="sophomore slump callithump stamp.png">
 
 ## DNI Criteria
 
@@ -35,3 +35,5 @@ My Coroika OC's page; [Arbiter](https://github.com/EnberNeutral/Arbiter_CoroikaO
 Again, this list is for my own comfort. If you fit my DNI or make me uncomfortable enough, you're probably already hidden or I'm keeping my eye on you...
 
 Doubles of kins/fictives aren't on my DNI, but I do feel a bit uncomfortable around them if we aren't friends. IWC I guess???
+
+<img src="shady stamp 1.png">
