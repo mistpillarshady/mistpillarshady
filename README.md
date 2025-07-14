@@ -20,6 +20,8 @@ For more info or any specifics, consult my pronouns.cc page.
 
 My Coroika OC's page; [Arbiter](https://github.com/EnberNeutral/Arbiter_CoroikaOC)
 
+<img src="trust ceremony stamp.png"> <img src="jsrf stamp.png">
+
 ## DNI Criteria
 
 **My DNI is pretty small and based on my personal comfort since my stances can be inconsistent or neutral;**
