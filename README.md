@@ -1,6 +1,6 @@
 # Get To Know Me
 
-*Okay I never made a real repository before, but I'm sick of ppl not always reading my rentries/pronouns.cc.*
+<img src="muichiro's appearance stamp.gif"> <img src="shady stamp 1.png">
 
 ## Chrysanthemum (Chrys or Len for short) [*Main Syshost*]
 
@@ -32,8 +32,8 @@ My Coroika OC's page; [Arbiter](https://github.com/EnberNeutral/Arbiter_CoroikaO
 - **Any Cluster B abuse believers.**
 - **Anti-SelfDX (I'm SelfDX).**
 
+<img src="muichiro's absurd hole in one caught in 4k stamp.gif"> <img src="muichiro stamp 1.gif"> <img src="kotetsu and muichiro stamp 2.gif"> <img src="muichiro's ultimate stamp.gif">
+
 Again, this list is for my own comfort. If you fit my DNI or make me uncomfortable enough, you're probably already hidden or I'm keeping my eye on you...
 
 Doubles of kins/fictives aren't on my DNI, but I do feel a bit uncomfortable around them if we aren't friends. IWC I guess???
-
-<img src="shady stamp 1.png">
