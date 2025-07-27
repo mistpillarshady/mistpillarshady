@@ -8,7 +8,7 @@ I'm an OSDD system, or just plural in general, collectively going by He/They UNL
 
 \+ AuDHD, CPTSD (suspected borderline + narcissistic traits), and a lot of anxiety/paranoia.
 
-<img src="autistic shady stamp 1.png"> <img src="plural muichiro stamp 1.png"> <img src="kotetsu and muichiro stamp 1.gif"> [![](https://raw.githubusercontent.com/mistpillarshady/mistpillarshady/refs/heads/main/midnight%20npd%20muichiro%20stamp%202.png)](https://www.tumblr.com/loverboyplural/758287260944859136/suspected-sunset-npd?source=share) <img src="kotetsu and yoriichi type zero ultimate stamp.gif">
+<img src="shady s3 stamp 1.png"> <img src="plural muichiro stamp 1.png"> <img src="kotetsu and muichiro stamp 1.gif"> [![](https://raw.githubusercontent.com/mistpillarshady/mistpillarshady/refs/heads/main/midnight%20npd%20muichiro%20stamp%202.png)](https://www.tumblr.com/loverboyplural/758287260944859136/suspected-sunset-npd?source=share) <img src="kotetsu and yoriichi type zero ultimate stamp.gif">
 
 <img src="Shady_Userbox.png" width="275" height="50"> <img src="tumblr_0345594a2e882e9157b7bcb14e2e95c9_c298dcb6_1280.png" width="277" height="52"> <img src="zenitsu_comf_userbox.png" height="52">
 
