@@ -35,5 +35,3 @@ My Coroika OC's page; [Arbiter](https://github.com/EnberNeutral/Arbiter_CoroikaO
 <img src="muichiro's absurd hole in one caught in 4k stamp.gif"> <img src="muichiro stamp 1.gif"> <img src="kotetsu and muichiro stamp 2.gif"> <img src="muichiro's ultimate stamp.gif">
 
 Again, this list is for my own comfort. If you fit my DNI or make me uncomfortable enough, you're probably already hidden or I'm keeping my eye on you...
-
-Doubles of kins/fictives aren't on my DNI, but I do feel a bit uncomfortable around them if we aren't friends. IWC I guess???
